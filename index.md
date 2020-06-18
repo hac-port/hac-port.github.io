@@ -17,3 +17,6 @@ ist zwar zum Alkoholiker verkommen, kennt aber noch immer alle Tricks.
 
 Das witzigste Zitat im Film:
 > Soll ich etwa zugeben, dass der Mann besser bescheißt als wir beide zusammen?
+
+Paul Newman verkörpert Henry Gondorff
+<img src="https://de.wikipedia.org/wiki/Paul_Newman#/media/Datei:Paul_Newman_in_Venice,_1963.jpg"/>
