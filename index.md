@@ -14,3 +14,6 @@ ist zwar zum Alkoholiker verkommen, kennt aber noch immer alle Tricks.
 * witzig
 * clever
 * charmant
+
+Das witzigste Zitat im Film:
+> Soll ich etwa zugeben, dass der Mann besser bescheißt als wir beide zusammen?
