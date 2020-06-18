@@ -8,3 +8,9 @@ Als Johnny am Abend zu Luther fährt, erfährt er vom Tod des Kollegen.
 Aus Angst um sein eigenes Leben flüchtet Hooker aus der Stadt und setzt sich mit Luthers ehemaligem Partner Henry Gondorff in Verbindung.
 Der erfahrene Betrüger, der mit seiner Freundin ein Bordell sowie ein Kinderkarussell betreibt,
 ist zwar zum Alkoholiker verkommen, kennt aber noch immer alle Tricks.
+
+## Haupteigenschaften
+
+* witzig
+* clever
+* charmant
